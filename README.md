@@ -124,7 +124,3 @@ Ecommerce\_Retention\_Project/
 
 \[LinkedIn](https://www.linkedin.com/in/rishiraj2323/) · \[GitHub](https://github.com/rishiraj2323)
 
-
-
-
-
